@@ -1,10 +1,14 @@
 # Hnote
 
 
-JustH+So
+JustH+So Hvimatter
 
-4HNomatterRestFinished
+4HNomatter J&Rest = Finished
+
+4H:Following=descendingToTheirLevel&WastingTime.
 
 Marcontinueasbeforeasulike
 
-Best4u
+lavMayNi
+
+Best4Mar <3
